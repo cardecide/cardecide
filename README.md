@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @cardecide
-- 👀 I’m interested in surfing , bodybuilding , fashion and hip-hop
+- 👀 I’m interested in surfing , bodybuilding , fashion and Rock
 - 🌱 I’m currently learning VR and sports 
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me @car_decide29 Instagram DM
